@@ -5,14 +5,14 @@ Hi babe ✋🏻
 
 Download the file and upload it after the changes in your host 🌐
 
-# create by amir0026a
+# create by viktor
 I love you
 
 Contact me if you have a problem
 
-telegram ID : @amir0026a
+telegram ID : @vomgle
 
-instagram Username : amir0026_a
+instagram Username : viktor_Zhyahlo.17
 
 and more ...
 
